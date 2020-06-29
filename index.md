@@ -1,3 +1,3 @@
 Buffy quotes:
 
-> ‘Power. I have it, they don’t.’
+> Power. I have it, they don’t.
