@@ -1,1 +1,1 @@
-# Buffy - die Vampirjägerin
+Buffy ist eine Vampirjägerin und wohnt in Sunnydale. Mit ihren Freunden, der Scooby Gang, vernichtet sie Vampire und Dämonen. Buffy Anne Summers wurde 1981 als einziges Kind von Hank und Joyce Summers geboren und wuchs in Los Angeles auf.
