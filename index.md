@@ -1,5 +1,3 @@
-## Buffys Eigenschaften
+Buffy quotes:
 
-* ist stark
-* witzig
-* mag Angel
+> Power. I have it, they don’t.
